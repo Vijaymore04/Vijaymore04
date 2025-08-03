@@ -46,7 +46,7 @@
 ### 📫 Connect With Me
 
 - 💼 Instagram: [_.vijaymore_29._](https://www.instagram.com/.vijaymore_29._)
-- 📧 Email: your.email@example.com  
+- 📧 Email: vijay810428@gmail.com
 - 🌐 LinkedIn: (https://www.linkedin.com/in/vijay-more-12690a1a0/)
 
 ---
