@@ -47,7 +47,7 @@
 
 - 💼 Instagram: [_.vijaymore_29._](https://www.instagram.com/.vijaymore_29._)
 - 📧 Email: your.email@example.com  
-- 🌐 LinkedIn: (add here if available)
+- 🌐 LinkedIn: (https://www.linkedin.com/in/vijay-more-12690a1a0/)
 
 ---
 
